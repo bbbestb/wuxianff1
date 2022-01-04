@@ -9,11 +9,30 @@
 
 ---
 
+## [老铁亲身体验，Nord梯子的特性如下：](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=github&aff_click_id=wuxianff1)
+### 专用服务器配置文件打造流畅上网体验
+
+✅提供 AES-256 加密及强大的安全协议
+
+✅采用零日志政策，保障用户个人信息安全
+
+✅易于使用的应用程序，兼容多数主流设备
+
+✅提供 30 天退款保证
+
+✅经常有打折活动，顶级品牌中最实惠的梯子
+
+---
+
 ## [Express梯子的特性如下：](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=github&data1=wuianff1)
 ### 高速流畅地浏览网站，结合零日志政策，持续保护您的网络隐私
 
 ✅决定购买前可享受无风险试用（提供 30 天退款保证）
+
 ✅为 Windows、macOS、安卓、iOS 等系统提供专用应用程序
+
 ✅提供军事级加密及多种安全协议
+
 ✅严格的无日志政策，让您保持匿名状态
+
 ✅极快网速，打造流畅上网体验
