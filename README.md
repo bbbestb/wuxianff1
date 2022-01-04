@@ -9,8 +9,8 @@
 
 ---
 
-## [Express梯子](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=github&data1=wuianff1)
-## 高速流畅地浏览网站，结合零日志政策，持续保护您的网络隐私
+## [Express梯子的特性如下：](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=github&data1=wuianff1)
+### 高速流畅地浏览网站，结合零日志政策，持续保护您的网络隐私
 
 ✅决定购买前可享受无风险试用（提供 30 天退款保证）
 ✅为 Windows、macOS、安卓、iOS 等系统提供专用应用程序
